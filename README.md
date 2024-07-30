@@ -1,5 +1,4 @@
-## Hi there 👋
-
+## Eu sou o Betao Cumedor de Botao, gosto de comer muito botao  eu amo MPB e minha materia favorita e filosofia e historia,eu odeio o esse governo ele nao da um cardapio bom para a minha escola isso faz eu odiar ele, fico brava todo dia so de pensar que o lanche vai ser achocolatado com bolacha eu odeio o capitalismo,esse país nunca vai pra frente, pelo amor de mim, governo muda o cardapio dessa escola, obrigado e de nada eu sou ateu.
 <!--
 **Gtayna918/Gtayna918** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
